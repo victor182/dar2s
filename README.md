@@ -2,4 +2,4 @@ dar2s
 =====
 
 banda de harcore
-xoby chapame el piwi
+(por aqui paso sady a dejar su rastro)
